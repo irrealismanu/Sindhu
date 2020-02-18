@@ -1,1 +1,2 @@
-By Love For BP!
+Bot Sindhu Bot!
+wuni ing samar prtiwi
